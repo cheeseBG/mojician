@@ -1,4 +1,2 @@
 # mojician
-Mojo🔥
-
-Mojo: https://www.modular.com/mojo
+Mojo🔥: https://www.modular.com/mojo
