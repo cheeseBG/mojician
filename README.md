@@ -1,0 +1,2 @@
+# mojician
+🔥Mojo: self-study
